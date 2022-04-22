@@ -1,0 +1,1 @@
+Web3 crowdfunding platform pushing decentralization and fairness
